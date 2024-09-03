@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Roeys-labwork
+- 👋 Hi, I’m @Roey
 - 👀 I’m interested in IT Support
 - 🌱 I’m currently learning IT through CourseCareers and Google IT Course
 - 💞️ I’m looking to collaborate on IT supportand how to start looking for work and assignments
